@@ -1,4 +1,4 @@
 # Projects
 Portfolio Projects
 <br>
-Designer - Swapna Tahvidaboyna(UIUX Designer)
+Designer - Swapna Thavidaboyna(UIUX Designer)
